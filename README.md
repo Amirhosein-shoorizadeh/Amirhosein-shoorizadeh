@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning Deep learning ,
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me with bale :(
+- 📫 How to reach me : with bale :(
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I'm yazdi
 - 
